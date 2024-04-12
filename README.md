@@ -2,8 +2,8 @@
 - 👀 I’m interested in media social manager 
 - 🌱 I’m currently learning mentoring 
 - 💞️ I’m looking to collaborate on partnership 
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 📫 How to reach me juliobrucco@gmail.com
+- 😄 Pronouns: HE
 - ⚡ Fun fact: ...
 
 <!---
